@@ -1,1 +1,1 @@
-![ezgif com-gif-maker (2)](https://github.com/annespace/guess-my-number/assets/124949697/c7c19ff3-bf94-4ae7-872e-45ad00b759bc)
+![ezgif com-gif-maker](https://github.com/annespace/guess-my-number/assets/124949697/a34f6366-a6fe-4e1e-afb6-3cc430b5d9b8)
